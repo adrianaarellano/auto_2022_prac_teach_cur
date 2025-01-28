@@ -1,0 +1,1 @@
+# auto_2022_prac_teach_cur
